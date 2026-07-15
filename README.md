@@ -39,7 +39,7 @@ cd portafolio
 
 - 📱 WhatsApp: [+57 311 7744727](https://wa.me/573117744727)
 - ✉️ mcclein01@gmail.com
-- 💼 Disponible para trabajo remoto o presencial
+- 💼 Disponible para trabajo remoto
 
 ---
 
